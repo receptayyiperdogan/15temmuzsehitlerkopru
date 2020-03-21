@@ -1,0 +1,1 @@
+![15 temmuz kopru ](https://i4.hurimg.com/i/hurriyet/75/750x422/5dbe5c8967b0a9097cc79042.jpg)
